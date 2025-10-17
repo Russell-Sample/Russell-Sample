@@ -86,7 +86,9 @@ Education \& Awards
 
 &nbsp;  - Honors freshman, sophomore, junior, and senior courses
 
-&nbsp;  Northeastern University Oakland; Oakland, CA: August 2025 - pres.
+&nbsp;  Northeastern University Oakland; Oakland, CA: August 2025 - December 2029
+
+&nbsp;  - Major: Computer Science & Design
 
 &nbsp;  Awards:
 
