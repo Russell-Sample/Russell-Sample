@@ -18,25 +18,27 @@ Contact Information
 
 Skills
 
-&nbsp;  Problem Solver
+&nbsp;  problem solver
 
-&nbsp;  Critical Thinker
+&nbsp;  critical thinker
 
-&nbsp;  Creative
+&nbsp;  creative
 
-&nbsp;  Open-Minded
+&nbsp;  open-minded
 
-&nbsp;  People Skills
+&nbsp;  people skills
 
 
 
 Hobbies
 
-&nbsp;  Songwriting
+&nbsp;  songwriting
 
-&nbsp;  Art
+&nbsp;  art
 
-&nbsp;  Writing
+&nbsp;  writing
+
+&nbsp;  exploring new music
 
 
 
