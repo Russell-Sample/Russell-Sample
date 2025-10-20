@@ -54,7 +54,7 @@ Work \& Volunteer Experience
 
 &nbsp;  volunteer in various local organizations
 
-&nbsp;  - Longmont ArtWalk
+&nbsp;  - Firehouse Art Center ArtWalk
 
 &nbsp;  - Longmont Humane Society
 
