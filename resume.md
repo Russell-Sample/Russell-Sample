@@ -42,25 +42,25 @@ Hobbies
 
 
 
+About Me
+
+&nbsp;  I am a very curious person, and I love learning about new things and how things work. I always like to feel I'm being productive towards a goal, even if that goal is a personal or insignificant one, and I avoid wasting time as much as I can. I am very outgoing when talking on topics I am passionate about.
+
+
+
 Work \& Volunteer Experience
 
 &nbsp;  host / food runner at 300 Suns Brewing
 
 &nbsp;  volunteer in various local organizations
 
-&nbsp;  - Firehouse Art Center Art Walk
+&nbsp;  - Longmont ArtWalk
 
 &nbsp;  - Longmont Humane Society
 
 &nbsp;  volunteer in school organized events
 
 &nbsp;  babysit for school PTO
-
-
-
-About Me
-
-&nbsp;  I am a very curious person, and I love learning about new things and how things work. I always like to feel I'm being productive towards a goal, even if that goal is a personal or insignificant one, and I avoid wasting time as much as I can. I am very outgoing when talking on topics I am passionate about.
 
 
 
