@@ -60,7 +60,7 @@ Work \& Volunteer Experience
 
 About Me
 
-&nbsp;  I am a very curious person and I love learning about new things and how things work. I always like to feel I'm being productive towards a goal, even if that goal is a personal or insignificant one, and I avoid wasting time as much as I can. I am very outgoing when talking on topics I am passionate about.
+&nbsp;  I am a very curious person, and I love learning about new things and how things work. I always like to feel I'm being productive towards a goal, even if that goal is a personal or insignificant one, and I avoid wasting time as much as I can. I am very outgoing when talking on topics I am passionate about.
 
 
 
