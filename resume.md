@@ -114,9 +114,9 @@ Activities \& Clubs
 
 &nbsp;  choir: 2019-2025
 
-&nbsp;  Columbia Pre-College Residential Program 2024
-
 &nbsp;  school play \& musical: 2024-2025
+
+&nbsp;  Columbia Pre-College Residential Program 2024
 
 &nbsp;  NEU Oakland Makers Club: 2025-
 
