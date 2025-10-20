@@ -66,7 +66,7 @@ About Me
 
 Education \& Awards
 
-&nbsp;  Twin Peaks Classical Academy; Longmont, CO: August 2013 - May 2025
+&nbsp;  Twin Peaks Classical Academy (Longmont, CO): August 2013 - May 2025
 
 &nbsp;  - GPA: Weighted Average of 4.333
 
@@ -88,23 +88,21 @@ Education \& Awards
 
 &nbsp;  - Honors freshman, sophomore, junior, and senior courses
 
-&nbsp;  Northeastern University Oakland; Oakland, CA: August 2025 - December 2029
+&nbsp;  Northeastern University Oakland (Oakland, CA): August 2025 - December 2029
 
-&nbsp;  - Major: Computer Science & Design
+&nbsp;  - major: Computer Science & Design
 
 &nbsp;  Awards:
 
-&nbsp;  - Award for depth of thought and leadership in history classes (2024)
-
 &nbsp;  - Honor Roll 4.0+ GPA (2021-2025)
+
+&nbsp;  - Award for depth of thought and leadership in history classes (2024)
 
 &nbsp;  - TPCA Academics Award (2025)
 
 &nbsp;  - AP Scholar Award (2024)
 
 &nbsp;  - AP Scholar with Distinction Award (2025)
-
-&nbsp;  - Certificate of Participation for Columbia University Pre-College Programs (2024)
 
 
 
